@@ -8,6 +8,6 @@
 
 妙娇AV网的客服邮箱：miaomiao6336@gmail.com
 
-妙娇AV网客服的电报号：[@miaomiaoav999](https://t.me/miaomiaoav999/)
+妙娇AV网客服的电报号：[@mmav999](https://t.me/mmav999/)
 
 妙娇AV网的电报交流群：[https://t.me/mmavgroup/](https://t.me/mmavgroup/)
