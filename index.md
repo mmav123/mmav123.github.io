@@ -10,4 +10,4 @@
 
 妙妙AV精选网客服的电报号：[@mmav999](https://t.me/mmav999/)
 
-妙妙AV精选网的电报交流群：[https://t.me/mmavgroup/](https://t.me/mmavgroup/)
+妙妙AV精选网的电报频道：[https://t.me/mmav666/](https://t.me/mmav666/)
